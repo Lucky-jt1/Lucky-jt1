@@ -1,6 +1,6 @@
 - Hi, I’m @Lucky-jt1
-- Eager to work with new people 
-- Let's learn new things together 
+- Let's learn new things together
+- Eagerly waiting for the work with new people
 - DM me lakshminarayanapallantla@gmail.com
 
 <!---
